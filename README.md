@@ -1,2 +1,0 @@
-# iamsnkbd.github.io
-d
